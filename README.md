@@ -1,6 +1,3 @@
-# Flying Etiquette
-
-## Is it rude to move to an unsold seat on a plane? ##
 
 ![alt text](oHBJA-flying-etiquette.png) 
 
