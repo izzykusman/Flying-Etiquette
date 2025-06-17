@@ -1,4 +1,4 @@
-# Flying-Etiquette
+# Flying Etiquette
 
 ## Is it rude to move to an unsold seat on a plane? ##
 
