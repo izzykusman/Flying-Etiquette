@@ -2,6 +2,8 @@
 
 ## Is it rude to move to an unsold seat on a plane? ##
 
+![alt text](oHBJA-flying-etiquette.png) 
+
 This question is interesting as it exposes the unspoken reality of how passangers choose to share space.
 
 **Technical Rules** vs. **Conscious Approval of Politness** 
